@@ -12,3 +12,15 @@ kk
 ;
 l;l
 
+jt;wh
+jktlkr
+jtjwtrhl
+krtjh;jrw
+jkjltjr
+k'kj'kthr
+lkmlkl;thk
+kl;k;r
+klmlrte
+'llkjed
+lkj
+er
